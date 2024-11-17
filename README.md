@@ -4,7 +4,7 @@ I’ve got a Bachelor’s in Finance and Accounting 📚 and a Master’s in Fin
 
 As a data enthusiast, I’m armed with SQL, Power BI, and Excel skills, with a solid grounding in accounting 💡. I’m about turning complex data into clear, actionable insights and diving deep into business analysis 🔍. Passionate and proactive, I’m excited to bring my data-driven approach to a dynamic team and make a real impact 🚀.
 
-Let’s connect on LinkedIn ➡︎ [www.linkedin.com/in/saransh-sharma-90527520b]
+Let’s connect on LinkedIn ➡︎ [www.linkedin.com/in/saransh-sharma-s8586s]
 
 Feel free to email me ➡︎ exe.saranshsharma@gmail.com 📧
 
